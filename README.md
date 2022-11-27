@@ -1,1 +1,1 @@
-# A.-Burenka-Plays-with-Fractions---Codeforces4
+# A.-Burenka-Plays-with-Fractions---Codeforces41
